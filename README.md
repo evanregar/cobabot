@@ -1,1 +1,1 @@
-{\rtf1}
+Apaan nih
